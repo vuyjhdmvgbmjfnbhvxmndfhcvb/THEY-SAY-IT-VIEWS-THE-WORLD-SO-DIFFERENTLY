@@ -1,2 +1,2 @@
-# C35_Pelota con movimiento sincrónico
-Actividad del alumno 1
+YOUR MOTHER IS GAY
+YOU ARE BISEXUAL
