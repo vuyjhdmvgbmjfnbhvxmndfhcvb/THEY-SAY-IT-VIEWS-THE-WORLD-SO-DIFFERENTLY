@@ -1,2 +1,2 @@
-# THEY-SAY-IT-VIEWS-THE-WORLD-SO-DIFFERENTLY
-STAY-AWAY-FROM-IT-THATS-WHAT-WE-AGREED
+# C35_Pelota con movimiento sincrónico
+Actividad del alumno 1
